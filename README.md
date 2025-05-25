@@ -10,7 +10,7 @@ Berikut adalah beberapa proyek video yang saya buat sejak SMA. Video ini dibuat 
 ### 1. Video Projek Tugas Sekolah (2020)
 - Deskripsi: Video dokumentasi pembuatan roket air sebagai tugas sekolah mata pelajaran Fisika.
 - Tools: Filmora Video Editor + Kamera HP Samsung J2 Prime
-- Link: [Tonton di Google Drive](https://youtu.be/xxxxxxxx)
+- Link: [Tonton di Google Drive](https://drive.google.com/file/d/1G-Q8eZBzMqfaUdc1xZiDt49YyE_XSqtT/view?usp=sharing)
 
 ---
 
